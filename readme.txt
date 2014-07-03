@@ -1,1 +1,1 @@
-Create a new branchs quick and simple
+Create a new branchs quick and simple.
